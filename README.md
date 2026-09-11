@@ -17,7 +17,10 @@
   <a
     
 ᔓ⠀⠀ [新 𝔅𝔬𝔬𝔨](https://fragilityofsoul.atabook.org/) ⠀⠀⠀ᔕ⠀ ༒ ⠀ᔓ⠀⠀⠀ [𝔊𝔲𝔫.𝔩𝔬𝔩](https://guns.lol/fragilityofsoul)⠀⠀ ᔕ
- <p align="center"> ⠀ 𐔌՞. .՞𐦯 ⠀
+ <p align="center">
+  <a
+
+  ⠀ [𝔭𝔯𝔫.𝔠𝔠](https://pronouns.cc/@aviledoktxr) ⠀
 
 
 ----
