@@ -21,7 +21,7 @@
 
   <p align="center">
     <p align="center"> 
-      [新 𝓑𝗈𝗈𝗄](https://fragilityofsoul.atabook.org/).
+      [新 𝓑𝗈𝗈𝗄](https://fragilityofsoul.atabook.org/)
       
 ----
       
