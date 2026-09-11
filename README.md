@@ -1,3 +1,5 @@
+![](https://files.catbox.moe/482owt.png)
+
 <p align="center">
   <a
 
@@ -27,7 +29,7 @@
   ⠀ [𝔭𝔯𝔫.𝔠𝔠](https://pronouns.cc/@aviledoktxr) ⠀
 
 
-----
+![](https://files.catbox.moe/482owt.png)
       
 - ℑ 𝔞𝔪 𝟏𝟖+ 𝔞𝔫𝔡 𝔦𝔰 𝔳𝔢𝔯𝔶 𝔟𝔲𝔰𝔶 𝔤𝔲𝔶 𝔰𝔬 𝔦 𝔞𝔪 𝔫𝔬𝔱 𝔳𝔢𝔯𝔶 𝔪𝔲𝔠𝔥 𝔞𝔠𝔱𝔦𝔳𝔢 𝔬𝔫 𝔭𝔱,,,
 - ℑ 𝔞𝔪 𝔫𝔬𝔱 𝔢𝔵𝔞𝔠𝔱𝔩𝔶 𝔣𝔯𝔦𝔢𝔫𝔡𝔩𝔶 𝔞𝔱 𝔣𝔦𝔯𝔰𝔱 𝔰𝔦𝔤𝔥𝔱, 𝔰𝔬 𝔟𝔢𝔞𝔯 𝔴𝔦𝔱𝔥 𝔪𝔢 𝔞𝔫𝔡 𝔪𝔶 𝔥𝔬𝔰𝔱𝔦𝔩𝔦𝔱𝔶⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -85,3 +87,5 @@
   <a
   
   [𝕽𝖔𝖉𝖓𝖆𝖞𝖆 𝖉𝖚𝖘𝖍𝖆](https://github.com/GrievingMyDearest)
+
+![](https://files.catbox.moe/2m57jf.png)
