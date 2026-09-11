@@ -23,7 +23,7 @@
 <p align="center">
   <a
     
-ᔓ [新 𝔅𝔬𝔬𝔨](https://fragilityofsoul.atabook.org/) ᔕ ༒ ᔓ [𝔊𝔲𝔫.𝔩𝔬𝔩](https://guns.lol/fragilityofsoul) ᔕ
+ᔓ⠀⠀ [新 𝔅𝔬𝔬𝔨](https://fragilityofsoul.atabook.org/) ⠀⠀⠀ᔕ⠀ ༒ ⠀ᔓ⠀⠀⠀ [𝔊𝔲𝔫.𝔩𝔬𝔩](https://guns.lol/fragilityofsoul)⠀⠀ ᔕ
       
 ----
       
@@ -70,5 +70,8 @@
   <p align="center">  
 <p align="center"> My Abnormal and Beloved Friends
 
-<p align="center"> [@T0R4X](https://github.com/T0R4X) 〟 @AngelicDeceit 〟 @Noctiluvancy 〟 @ChimoryX 〟 @rainyourday 〟 @Eun0i4Xd
+<p align="center">
+  <a
+  
+  [@T0R4X](https://github.com/T0R4X) 〟 [@AngelicDeceit](https://github.com/AngelicDeceit) 〟 [@Noctiluvancy](https://github.com/Noctiluvancy) 〟 [@ChimoryX](https://github.com/ChimoryX) 〟 [@rainyourday](https://github.com/rainyourday) 〟 [@Eun0i4Xd](https://github.com/Eun0i4Xd)
 
