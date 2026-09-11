@@ -9,9 +9,13 @@
 <p align="center"> ⠀⠀⠀⠀ ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center"> ‧♪ 𝄞˚⠀𝖕𝖑𝖆𝖞𝖎𝖓𝖌┇𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊 
-<p align="center"> 0:56 ────│───── 2:16
-<p align="center"> ⠀↺ ◁ ││ ▷ ↻
+<p align="center"> 𝖓𝖔𝖜 𝖕𝖑𝖆𝖞𝖎𝖓𝖌
+<p align="center">
+  <a
+    
+[𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊](https://youtu.be/4J3zvFT0CAA?si=J4KQMdF9Dlk9PTG3) 
+<p align="center"> 0:58 ─────○──────── 2:16
+<p align="center"> ⠀↺ ◁ ││ ▷ ↻ ⇆
 <p align="center">
 <p align="center">
   <a
