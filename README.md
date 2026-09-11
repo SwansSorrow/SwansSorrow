@@ -16,12 +16,15 @@
 ⠀<p align="center"> 
   <p align="center"> 
     <p align="center"> 
+<p align="center"> 
+  <p align="center"> 
 
-  
-----
   <p align="center">
-    <p align="center"> 
-
+    <p align="center"> [新
+𝓑𝗈𝗈𝗄](https://fragilityofsoul.atabook.org/) . gunlol . strawpage
+      
+----
+      
 - ℑ 𝔞𝔪 𝟏𝟖+ 𝔞𝔫𝔡 𝔦𝔰 𝔳𝔢𝔯𝔶 𝔟𝔲𝔰𝔶 𝔤𝔲𝔶 𝔰𝔬 𝔦 𝔞𝔪 𝔫𝔬𝔱 𝔳𝔢𝔯𝔶 𝔪𝔲𝔠𝔥 𝔞𝔠𝔱𝔦𝔳𝔢 𝔬𝔫 𝔭𝔱,,,
 - ℑ 𝔞𝔪 𝔫𝔬𝔱 𝔢𝔵𝔞𝔠𝔱𝔩𝔶 𝔣𝔯𝔦𝔢𝔫𝔡𝔩𝔶 𝔞𝔱 𝔣𝔦𝔯𝔰𝔱 𝔰𝔦𝔤𝔥𝔱, 𝔰𝔬 𝔟𝔢𝔞𝔯 𝔴𝔦𝔱𝔥 𝔪𝔢 𝔞𝔫𝔡 𝔪𝔶 𝔥𝔬𝔰𝔱𝔦𝔩𝔦𝔱𝔶⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 - ℑ 𝔡𝔬𝔫𝔱 𝔣𝔯𝔦𝔢𝔫𝔡 𝔭𝔢𝔬𝔭𝔩𝔢 𝔯𝔞𝔫𝔡𝔬𝔪𝔩𝔶
@@ -33,8 +36,6 @@
 <p align="center"> 
 <p align="center"> ᔓ⠀⠀⠀ℑ 𝔟𝔩𝔬𝔠𝔨 ／ 𝔥𝔦𝔡𝔢 𝔣𝔯𝔢𝔢𝔩𝔶⠀⠀⠀ᔕ
 
-  
-----
   <p align="center">
     <p align="center">
 <p align="center"> 𝓢𝔱𝔞𝔱𝔲𝔰 
@@ -53,4 +54,18 @@
 ⠀⠀⠀⠀⠀<p align="center"> ⠀
 ⠀<p align="center"> ⠀
 <p align="center"> 𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !
+  <p align="center"> 
+      <p align="center"> 𝕯𝔫𝔦
+<p align="left"> ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. ℑ 𝔡𝔬 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡 𝔱𝔥𝔢 𝔥𝔞𝔱𝔢 𝔣𝔬𝔯 𝔥𝔦𝔰 𝔠𝔥𝔞𝔯𝔞𝔠𝔱𝔢𝔯 𝔟𝔲𝔱 𝔰𝔢𝔫𝔡𝔦𝔫𝔤 𝔡𝔢𝔞𝔱𝔥 𝔱𝔥𝔯𝔢𝔞𝔱𝔰 𝔬𝔳𝔢𝔯 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔪𝔞𝔦𝔫𝔦𝔫𝔤 𝔥𝔦𝔪 𝔦𝔰 𝔠𝔯𝔞𝔷𝔶. 𝔏𝔦𝔨𝔦𝔫𝔤 𝔞𝔫𝔱𝔞𝔤𝔬𝔫𝔦𝔰𝔱𝔰 𝔡𝔬𝔢𝔰𝔫'𝔱 𝔪𝔢𝔞𝔫 𝔱𝔥𝔢𝔶 𝔞𝔩𝔴𝔞𝔶𝔰 𝔰𝔲𝔭𝔭𝔬𝔯𝔱 𝔱𝔥𝔢 𝔞𝔠𝔱𝔦𝔬𝔫𝔰. 
+  <p align="center">  𝔗𝔥𝔞𝔫𝔨𝔰 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡𝔦𝔫𝔤.
+⠀<p align="center"> ⠀
+⠀<p align="center"> ⠀
+⠀<p align="center"> ⠀
+⠀<p align="center"> ⠀
+<p align="center"> ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+<p align="center"> 
+  <p align="center">  
+<p align="center"> My Abnormal and Beloved Friends
+
+<p align="center"> [@T0R4X](https://github.com/T0R4X) 〟 @AngelicDeceit 〟 @Noctiluvancy 〟 @ChimoryX 〟 @rainyourday 〟 @Eun0i4Xd
 
