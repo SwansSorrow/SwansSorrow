@@ -5,14 +5,14 @@
 
 <p align="center">゛ 𝕽𝓪𝔂 〟 𝕽𝓸𝓸𝓴 ⠀⦚⠀ ❝ 𝓩𝓪𝓷𝓭𝓲𝓴 ❞⠀⠀➺⠀⠀𝕯𝔬𝔫𝔱 𝔫𝔦𝔠𝔨𝔫𝔞𝔪𝔢 𝔪𝔢 𝔲𝔫𝔩𝔢𝔰𝔰 𝔴𝔢'𝔯𝔢 𝔠𝔩𝔬𝔰𝔢, 𝔱𝔥𝔞𝔫𝔨𝔰
 
-<p align="center"> 𝖆𝖉𝖚𝖑𝖙⠀⠀┅⠀⠀𝖎𝖓𝖙𝖕╼𝖙⠀⠀⠀⠀゛⠀⠀⠀𝖀𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡⠀⠀┅⠀⠀ℌ𝖊/𝓣𝔥𝔢𝔶
+<p align="center"> 𝖆𝖉𝖚𝖑𝖙⠀⠀┅⠀⠀𝖎𝖓𝖙𝖕╼𝖙⠀⠀⠀⠀⠀༒⠀⠀⠀⠀𝖀𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡⠀⠀┅⠀⠀ℌ𝖊/𝓣𝔥𝔢𝔶
 <p align="center"> ⠀⠀⠀⠀ ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center"> 𝖕𝖑𝖆𝖞𝖎𝖓𝖌┇𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊 
+<p align="center"> ꧖ ⠀⠀𝖕𝖑𝖆𝖞𝖎𝖓𝖌┇𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊 
 <p align="center"> 0:56 ────│───── 2:16
-<p align="center"> ↺ ◁ ││ ▷ ↻
+<p align="center"> ⠀↺ ◁ ││ ▷ ↻
 ⠀<p align="center"> 
   <p align="center"> 
     <p align="center"> 
@@ -20,8 +20,10 @@
   <p align="center"> 
 
   <p align="center">
-    <p align="center"> 
-      [新 𝓑𝗈𝗈𝗄](https://fragilityofsoul.atabook.org/)
+<p align="center">
+  <a
+    
+ᔓ [新 𝔅𝔬𝔬𝔨](https://fragilityofsoul.atabook.org/) ᔕ ༒ ᔓ [𝔊𝔲𝔫.𝔩𝔬𝔩](https://guns.lol/fragilityofsoul) ᔕ
       
 ----
       
@@ -55,7 +57,8 @@
 ⠀<p align="center"> ⠀
 <p align="center"> 𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !
   <p align="center"> 
-      <p align="center"> 𝕯𝔫𝔦
+     <p align="center"> 
+      <p align="center"> 𝕹𝖔𝖙𝖎𝖈𝖊 !
 <p align="left"> ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. ℑ 𝔡𝔬 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡 𝔱𝔥𝔢 𝔥𝔞𝔱𝔢 𝔣𝔬𝔯 𝔥𝔦𝔰 𝔠𝔥𝔞𝔯𝔞𝔠𝔱𝔢𝔯 𝔟𝔲𝔱 𝔰𝔢𝔫𝔡𝔦𝔫𝔤 𝔡𝔢𝔞𝔱𝔥 𝔱𝔥𝔯𝔢𝔞𝔱𝔰 𝔬𝔳𝔢𝔯 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔪𝔞𝔦𝔫𝔦𝔫𝔤 𝔥𝔦𝔪 𝔦𝔰 𝔠𝔯𝔞𝔷𝔶. 𝔏𝔦𝔨𝔦𝔫𝔤 𝔞𝔫𝔱𝔞𝔤𝔬𝔫𝔦𝔰𝔱𝔰 𝔡𝔬𝔢𝔰𝔫'𝔱 𝔪𝔢𝔞𝔫 𝔱𝔥𝔢𝔶 𝔞𝔩𝔴𝔞𝔶𝔰 𝔰𝔲𝔭𝔭𝔬𝔯𝔱 𝔱𝔥𝔢 𝔞𝔠𝔱𝔦𝔬𝔫𝔰. 
   <p align="center">  𝔗𝔥𝔞𝔫𝔨𝔰 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡𝔦𝔫𝔤.
 ⠀<p align="center"> ⠀
