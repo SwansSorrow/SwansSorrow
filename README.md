@@ -9,25 +9,15 @@
 <p align="center"> ⠀⠀⠀⠀ ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center"> ꧖ ⠀⠀𝖕𝖑𝖆𝖞𝖎𝖓𝖌┇𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊 
+<p align="center"> ‧♪ 𝄞˚⠀𝖕𝖑𝖆𝖞𝖎𝖓𝖌┇𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊 
 <p align="center"> 0:56 ────│───── 2:16
 <p align="center"> ⠀↺ ◁ ││ ▷ ↻
-⠀<p align="center"> 
-  <p align="center"> 
-    <p align="center"> 
-<p align="center"> 
-  <p align="center"> 
-
-  <p align="center">
+<p align="center">
 <p align="center">
   <a
     
 ᔓ⠀⠀ [新 𝔅𝔬𝔬𝔨](https://fragilityofsoul.atabook.org/) ⠀⠀⠀ᔕ⠀ ༒ ⠀ᔓ⠀⠀⠀ [𝔊𝔲𝔫.𝔩𝔬𝔩](https://guns.lol/fragilityofsoul)⠀⠀ ᔕ
-      
-<p align="center">
-  <a
-
-  ᔕ⠀   [𝔪𝔬𝔶𝔞 𝔩𝔶𝔲𝔟𝔬𝔳](https://github.com/GrievingMyDearest)⠀   ᔓ⠀⠀⠀⠀⠀⠀⠀
+ <p align="center"> ⠀ 𐔌՞. .՞𐦯 ⠀
 
 
 ----
@@ -41,23 +31,22 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">
 <p align="center"> 
-<p align="center"> ᔓ⠀⠀⠀ℑ 𝔟𝔩𝔬𝔠𝔨 ／ 𝔥𝔦𝔡𝔢 𝔣𝔯𝔢𝔢𝔩𝔶⠀⠀⠀ᔕ
+
 
   <p align="center">
     <p align="center">
-<p align="center"> 𝓢𝔱𝔞𝔱𝔲𝔰 
+<p align="left"> 𝓢𝔱𝔞𝔱𝔲𝔰 
 <p align="center">
   <p align="center">
 
 🟢 - ℑ 𝔩𝔦𝔨𝔢𝔩𝔶 𝔱𝔬 𝔟𝔢 𝔞𝔠𝔱𝔦𝔳𝔢 𝔬𝔯 𝔯𝔲𝔫𝔫𝔦𝔫𝔤 𝔞𝔯𝔬𝔲𝔫𝔡, 𝔶𝔬𝔲 𝔠𝔞𝔫 𝔦𝔫𝔱 𝔪𝔢 𝔣𝔯𝔢𝔢𝔩𝔶 𝔞𝔱 𝔞𝔫𝔶𝔱𝔦𝔪𝔢 
-    
+
 🌙 - 𝔐𝔬𝔰𝔱𝔩𝔶 𝔲𝔰𝔢𝔡 𝔞𝔫𝔡 𝔲𝔰𝔲𝔞𝔩𝔩𝔶 𝔬𝔣𝔣𝔱𝔟, 𝔟𝔲𝔰𝔶 𝔬𝔯 𝔭𝔩𝔞𝔶𝔦𝔫𝔤 𝔰𝔬𝔪𝔢𝔱𝔥𝔦𝔫𝔤 (𝔰𝔬𝔪𝔢𝔱𝔦𝔪𝔢𝔰 𝔴𝔦𝔱𝔥 𝔡𝔫𝔦/𝔰) ,, 𝔦𝔫𝔱 𝔞𝔫𝔡 𝓒𝔵𝓗 𝔲𝔫𝔩𝔢𝔰𝔰 𝔰𝔱𝔞𝔱𝔢𝔡 𝔬𝔱𝔥𝔢𝔯𝔴𝔦𝔰𝔢, 𝔯𝔢𝔰𝔱𝔦𝔫𝔤
-    
+
 ⛔️ - 𝔐𝔬𝔰𝔱𝔩𝔶 𝔇𝔫𝔦/𝔰 𝔦𝔫 𝔫𝔞𝔪𝔢 (𝔬𝔯 𝔫𝔬𝔱) ༚ 𝔴𝔯𝔦𝔱𝔦𝔫𝔤 𝔬𝔯 𝔟𝔲𝔰𝔶 ༚ 𝔇𝔫𝔦𝔲𝔭𝔞𝔯𝔱𝔶 𝔬𝔯 𝔇𝔫𝔦𝔲𝔇𝔢𝔞𝔯𝔢𝔰𝔱 , 𝔦𝔴𝔠𝔞𝔲𝔱𝔦𝔬𝔫 𝔞𝔩𝔴𝔞𝔶𝔰 .
 
-⠀ ⠀
-
 ⠀<p align="center">⠀⠀⠀⠀𒀹⠀⠀⠀ 𝔐𝔬𝔰𝔱𝔩𝔶 𝔰𝔞𝔣𝔨 𝔰𝔬 𝔩𝔞𝔱𝔢 𝔯𝔢𝔰𝔭 𝔦𝔰 𝔢𝔵𝔭𝔢𝔠𝔱𝔢𝔡.⠀⠀⠀ 𒑠
+<p align="center"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᔓ⠀⠀⠀ℑ 𝔟𝔩𝔬𝔠𝔨 ／ 𝔥𝔦𝔡𝔢 𝔣𝔯𝔢𝔢𝔩𝔶⠀⠀⠀ᔕ
 ⠀⠀⠀⠀⠀<p align="center"> ⠀
 ⠀<p align="center"> ⠀
 
@@ -67,18 +56,25 @@
   <p align="center"> 
     <p align="center"> 
      <p align="center"> 
-      <p align="center"> 𝕹𝖔𝖙𝖎𝖈𝖊
-<p align="left"> ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. 
+      <p align="center"> !! 𝕹𝖔𝖙𝖎𝖈𝖊 !!
+<p align="center"> ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. 
   <p align="center"> ℑ 𝔡𝔬 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡 𝔱𝔥𝔢 𝔥𝔞𝔱𝔢 𝔣𝔬𝔯 𝔥𝔦𝔰 𝔠𝔥𝔞𝔯𝔞𝔠𝔱𝔢𝔯 𝔟𝔲𝔱 𝔰𝔢𝔫𝔡𝔦𝔫𝔤 𝔡𝔢𝔞𝔱𝔥 𝔱𝔥𝔯𝔢𝔞𝔱𝔰 𝔬𝔳𝔢𝔯 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔪𝔞𝔦𝔫𝔦𝔫𝔤 𝔥𝔦𝔪 𝔦𝔰 𝔠𝔯𝔞𝔷𝔶. 
     <p align="center"> 𝔏𝔦𝔨𝔦𝔫𝔤 𝔞𝔫𝔱𝔞𝔤𝔬𝔫𝔦𝔰𝔱𝔰 𝔡𝔬𝔢𝔰𝔫'𝔱 𝔪𝔢𝔞𝔫 𝔱𝔥𝔢𝔶 𝔞𝔩𝔴𝔞𝔶𝔰 𝔰𝔲𝔭𝔭𝔬𝔯𝔱 𝔱𝔥𝔢 𝔞𝔠𝔱𝔦𝔬𝔫𝔰. 
   <p align="center">  𝔗𝔥𝔞𝔫𝔨𝔰 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡𝔦𝔫𝔤. ⠀⠀
     <p align="center">
 <p align="center"> ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
  
-<p align="center"> 𝑀𝓎 𝒜𝒷𝓃𝑜𝓇𝓂𝒶𝓁 𝒶𝓃𝒹 𝐵𝑒𝓁𝑜𝓋𝑒𝒹 𝐹𝓇𝒾𝑒𝓃𝒹𝓈
+<p align="center"> 𝕸𝖞 𝕬𝖜𝖊𝖘𝖔𝖒𝖊 𝕱𝖗𝖎𝖊𝖓𝖉𝖌𝖗𝖔𝖚𝖕
 
 <p align="center">
   <a
   
-  [@T0R4X](https://github.com/T0R4X) 〟 [@AngelicDeceit](https://github.com/AngelicDeceit) 〟 [@Noctiluvancy](https://github.com/Noctiluvancy) 〟 [@ChimoryX](https://github.com/ChimoryX) 〟 [@rainyourday](https://github.com/rainyourday) 〟 [@Eun0i4Xd](https://github.com/Eun0i4Xd)
+  [@𝕿0𝕽ᔦ𝖃](https://github.com/T0R4X) 〟 [@𝕬𝖓𝖌𝖊𝖑𝖎𝖈𝕯𝖊𝖈𝖊𝖎𝖙](https://github.com/AngelicDeceit) 〟 [@𝕹𝖔𝖈𝖙𝖎𝖑𝖚𝖛𝖆𝖓𝖈𝖞](https://github.com/Noctiluvancy) 〟 [@𝕮𝖍𝖎𝖒𝖔𝖗𝖞𝖃](https://github.com/ChimoryX) 〟 [@𝖗𝖆𝖎𝖓𝖞𝖔𝖚𝖗𝖉𝖆𝖞](https://github.com/rainyourday) 〟 [@𝕰𝖚𝖓0𝖎ᔦ𝖃𝖉](https://github.com/Eun0i4Xd)
 
+<p align="center">
+
+ <p align="center"> 𝕸𝖞 𝖔𝖓𝖊 𝖆𝖓𝖉 𝖔𝖓𝖑𝖞 𝖙𝖗𝖚𝖊 𝖑𝖔𝖛𝖊
+<p align="center">
+  <a
+  
+  [𝕽𝖔𝖉𝖓𝖆𝖞𝖆 𝖉𝖚𝖘𝖍𝖆](https://github.com/GrievingMyDearest)
