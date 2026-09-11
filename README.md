@@ -20,8 +20,8 @@
   <p align="center"> 
 
   <p align="center">
-    <p align="center"> [新
-𝓑𝗈𝗈𝗄](https://fragilityofsoul.atabook.org/) . gunlol . strawpage
+    <p align="center"> 新
+𝓑𝗈𝗈𝗄 . gunlol . strawpage
       
 ----
       
