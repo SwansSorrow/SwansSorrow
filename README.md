@@ -5,19 +5,19 @@
 
   ![](https://files.catbox.moe/45g1ys.png)
 
-<p align="center">゛ 𝕽𝓪𝔂 〟 𝕽𝓸𝓸𝓴 ⠀⦚⠀ ❝ 𝓩𝓪𝓷𝓭𝓲𝓴 ❞⠀⠀➺⠀⠀𝕯𝔬𝔫𝔱 𝔫𝔦𝔠𝔨𝔫𝔞𝔪𝔢 𝔪𝔢 𝔲𝔫𝔩𝔢𝔰𝔰 𝔴𝔢'𝔯𝔢 𝔠𝔩𝔬𝔰𝔢, 𝔱𝔥𝔞𝔫𝔨𝔰
+<p align="center">゛ $$\color{#b7e2ed}{\text{𝕽𝓪𝔂 〟 𝕽𝓸𝓸𝓴 ⠀⦚⠀ ❝ 𝓩𝓪𝓷𝓭𝓲𝓴 ❞⠀⠀➺⠀⠀𝕯𝔬𝔫𝔱 𝔫𝔦𝔠𝔨𝔫𝔞𝔪𝔢 𝔪𝔢 𝔲𝔫𝔩𝔢𝔰𝔰 𝔴𝔢'𝔯𝔢 𝔠𝔩𝔬𝔰𝔢, 𝔱𝔥𝔞𝔫𝔨𝔰}}$$
 
-<p align="center"> 𝖆𝖉𝖚𝖑𝖙⠀⠀┅⠀⠀𝖎𝖓𝖙𝖕╼𝖙⠀⠀⠀⠀⠀༒⠀⠀⠀⠀𝖀𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡⠀⠀┅⠀⠀ℌ𝖊/𝓣𝔥𝔢𝔶
+<p align="center"> $$\color{#b7e2ed}{\text{𝖆𝖉𝖚𝖑𝖙⠀⠀┅⠀⠀𝖎𝖓𝖙𝖕╼𝖙⠀⠀⠀⠀⠀༒⠀⠀⠀⠀𝖀𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡⠀⠀┅⠀⠀ℌ𝖊/𝓣𝔥𝔢𝔶}}$$
 <p align="center"> ⠀⠀⠀⠀ ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀<p align="center"> “ 𝔞𝔫𝔡 𝔦 𝔨𝔫𝔬𝔴 𝔱𝔥𝔞𝔱 𝔴𝔢 𝔠𝔬𝔲𝔩𝔡 𝔟𝔢 𝔱𝔬𝔤𝔢𝔱𝔥𝔢𝔯.. 𝔟𝔲𝔱 𝔫𝔬𝔱 𝔫𝔬𝔴, 𝔫𝔬, 𝔫𝔬𝔱 𝔞𝔱 𝔞𝔩𝔩... “
-<p align="center"> 𝖓𝖔𝖜 𝖕𝖑𝖆𝖞𝖎𝖓𝖌
+⠀<p align="center"> $$\color{#b7e2ed}{\text{“ 𝖆𝖓𝖉 𝖎 𝖐𝖓𝖔𝖜 𝖙𝖍𝖆𝖙 𝖜𝖊 𝖈𝖔𝖚𝖑𝖉 𝖇𝖊 𝖙𝖔𝖌𝖊𝖙𝖏𝖊𝖗.. 𝖇𝖚𝖙 𝖓𝖔𝖙 𝖓𝖔𝖜, 𝖓𝖔, 𝖓𝖔𝖙 𝖆𝖙 𝖆𝖑𝖑... “}}$$
+<p align="center"> $$\color{#b7e2ed}{\text{𝖓𝖔𝖜 𝖕𝖑𝖆𝖞𝖎𝖓𝖌}}$$
 <p align="center">
   <a
     
 [𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊](https://youtu.be/4J3zvFT0CAA?si=J4KQMdF9Dlk9PTG3) 
-<p align="center"> 0:58 ─────○──────── 2:16
-<p align="center"> ↺ ◁ ││ ▷ ↻ ⇆
+<p align="center"> $$\color{#E0FAFF}{\text{0:58 ─────○──────── 2:16}}$$
+<p align="center"> $$\color{#E0FAFF}{\text{↺ ◁ ││ ▷ ↻ ⇆}}$$
 <p align="center">
 <p align="center">
   <a
@@ -59,26 +59,28 @@
 ⠀⠀⠀⠀⠀<p align="center"> ⠀
 ⠀<p align="center"> ⠀
 
-<p align="center">  ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+<p align="center">  $$\color{#4d51a1}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}}$$
   <p align="center"> 
-<p align="center"> 𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !
+<p align="center"> $$\color{#5FE2FF}{\text{𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !}}$$
   <p align="center"> 
     <p align="center"> 
      <p align="center"> 
-      <p align="center"> !! 𝕹𝖔𝖙𝖎𝖈𝖊 !!
-<p align="center"> ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. 
-  <p align="center"> ℑ 𝔡𝔬 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡 𝔱𝔥𝔢 𝔥𝔞𝔱𝔢 𝔣𝔬𝔯 𝔥𝔦𝔰 𝔠𝔥𝔞𝔯𝔞𝔠𝔱𝔢𝔯 𝔟𝔲𝔱 𝔰𝔢𝔫𝔡𝔦𝔫𝔤 𝔡𝔢𝔞𝔱𝔥 𝔱𝔥𝔯𝔢𝔞𝔱𝔰 𝔬𝔳𝔢𝔯 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔪𝔞𝔦𝔫𝔦𝔫𝔤 𝔥𝔦𝔪 𝔦𝔰 𝔠𝔯𝔞𝔷𝔶. 
-    <p align="center"> 𝔏𝔦𝔨𝔦𝔫𝔤 𝔞𝔫𝔱𝔞𝔤𝔬𝔫𝔦𝔰𝔱𝔰 𝔡𝔬𝔢𝔰𝔫'𝔱 𝔪𝔢𝔞𝔫 𝔱𝔥𝔢𝔶 𝔞𝔩𝔴𝔞𝔶𝔰 𝔰𝔲𝔭𝔭𝔬𝔯𝔱 𝔱𝔥𝔢 𝔞𝔠𝔱𝔦𝔬𝔫𝔰. 
-  <p align="center">  𝔗𝔥𝔞𝔫𝔨𝔰 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡𝔦𝔫𝔤. ⠀⠀
+      <p align="center"> $$\color{#5FE2FF}{\text{!! 𝕹𝖔𝖙𝖎𝖈𝖊 !!}}$$
+<p align="center"> <p align="center">
+
+$$\color{#b7e2ed}{\text{ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 𝔞𝔫𝔡 𝔞𝔠𝔱𝔲𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔬𝔯 𝔥𝔞𝔯𝔞𝔰𝔰 𝔱𝔥𝔢𝔪 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔞 ℑ𝔩 𝔇𝔬𝔱𝔱𝔬𝔯𝔢 𝔪𝔞𝔦𝔫  — 𝔡𝔬𝔫'𝔱 𝔢𝔳𝔢𝔯 𝔠𝔬𝔪𝔢 𝔫𝔢𝔞𝔯 𝔪𝔢. }}$$
+  <p align="center"> $$\color{#b7e2ed}{\text{ℑ 𝔡𝔬 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡 𝔱𝔥𝔢 𝔥𝔞𝔱𝔢 𝔣𝔬𝔯 𝔥𝔦𝔰 𝔠𝔥𝔞𝔯𝔞𝔠𝔱𝔢𝔯 𝔟𝔲𝔱 𝔰𝔢𝔫𝔡𝔦𝔫𝔤 𝔡𝔢𝔞𝔱𝔥 𝔱𝔥𝔯𝔢𝔞𝔱𝔰 𝔬𝔳𝔢𝔯 𝔰𝔬𝔪𝔢𝔬𝔫𝔢 𝔪𝔞𝔦𝔫𝔦𝔫𝔤 𝔥𝔦𝔪 𝔦𝔰 𝔠𝔯𝔞𝔷𝔶.  }}$$
+    <p align="center"> $$\color{#b7e2ed}{\text{𝔏𝔦𝔨𝔦𝔫𝔤 𝔞𝔫𝔱𝔞𝔤𝔬𝔫𝔦𝔰𝔱𝔰 𝔡𝔬𝔢𝔰𝔫'𝔱 𝔪𝔢𝔞𝔫 𝔱𝔥𝔢𝔶 𝔞𝔩𝔴𝔞𝔶𝔰 𝔰𝔲𝔭𝔭𝔬𝔯𝔱 𝔱𝔥𝔢 𝔞𝔠𝔱𝔦𝔬𝔫𝔰.  }}$$
+  <p align="center">  $$\color{#b7e2ed}{\text{𝔗𝔥𝔞𝔫𝔨𝔰 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔲𝔫𝔡𝔢𝔯𝔰𝔱𝔞𝔫𝔡𝔦𝔫𝔤. }}$$ ⠀⠀
     <p align="center">
-<p align="center"> ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+<p align="center"> $$\color{#4d51a1}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}}$$
  
 <p align="center"> 𝕸𝖞 𝕬𝖜𝖊𝖘𝖔𝖒𝖊 𝕱𝖗𝖎𝖊𝖓𝖉𝖌𝖗𝖔𝖚𝖕
 
 <p align="center">
   <a
   
-  <span style="color: #66ccff;">[@𝑅𝒶𝓏𝓉](https://github.com/T0R4X)</span> ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
+[@𝑅𝒶𝓏𝓉](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
 
 <p align="center">
 
