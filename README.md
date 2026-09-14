@@ -78,14 +78,15 @@
 <p align="center">
   <a
   
-  [@𝑅𝒶𝓏𝓉](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
+  <span style="color: #66ccff;">[@𝑅𝒶𝓏𝓉](https://github.com/T0R4X)</span> ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
 
 <p align="center">
 
- <p align="center"> 𝕸𝖞 𝖔𝖓𝖊 𝖆𝖓𝖉 𝖔𝖓𝖑𝖞 𝖙𝖗𝖚𝖊 𝖑𝖔𝖛𝖊
+ <p align="center"> 
 <p align="center">
   <a
   
-  [𝕽𝖔𝖉𝖓𝖆𝖞𝖆 𝖉𝖚𝖘𝖍𝖆](https://github.com/GrievingMyDearest)
+ ꒰ 𝕸𝖞 𝖔𝖓𝖊 𝖆𝖓𝖉 𝖔𝖓𝖑𝖞 [𝕽𝖔𝖉𝖓𝖆𝖞𝖆 𝖉𝖚𝖘𝖍𝖆](https://github.com/GrievingMyDearest) ꒱
 
 ![](https://files.catbox.moe/2m57jf.png)
+
