@@ -78,7 +78,7 @@
 <p align="center">
   <a
   
-  [@𝕿0𝕽ᔦ𝖃](https://github.com/T0R4X) 〟 [@𝕬𝖓𝖌𝖊𝖑𝖎𝖈𝕯𝖊𝖈𝖊𝖎𝖙](https://github.com/AngelicDeceit) 〟 [@𝕹𝖔𝖈𝖙𝖎𝖑𝖚𝖛𝖆𝖓𝖈𝖞](https://github.com/Noctiluvancy) 〟 [@𝕮𝖍𝖎𝖒𝖔𝖗𝖞𝖃](https://github.com/ChimoryX) 〟 [@𝖗𝖆𝖎𝖓𝖞𝖔𝖚𝖗𝖉𝖆𝖞](https://github.com/rainyourday) 〟 [@𝕰𝖚𝖓0𝖎ᔦ𝖃𝖉](https://github.com/Eun0i4Xd)
+  [@𝑅𝒶𝓏𝓉](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
 
 <p align="center">
 
