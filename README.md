@@ -10,14 +10,14 @@
 <p align="center"> 𝖆𝖉𝖚𝖑𝖙⠀⠀┅⠀⠀𝖎𝖓𝖙𝖕╼𝖙⠀⠀⠀⠀⠀༒⠀⠀⠀⠀𝖀𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡⠀⠀┅⠀⠀ℌ𝖊/𝓣𝔥𝔢𝔶
 <p align="center"> ⠀⠀⠀⠀ ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀<p align="center"> “ 𝔞𝔫𝔡 𝔦 𝔨𝔫𝔬𝔴 𝔱𝔥𝔞𝔱 𝔴𝔢 𝔠𝔬𝔲𝔩𝔡 𝔟𝔢 𝔱𝔬𝔤𝔢𝔱𝔥𝔢𝔯.. 𝔟𝔲𝔱 𝔫𝔬𝔱 𝔫𝔬𝔴, 𝔫𝔬, 𝔫𝔬𝔱 𝔞𝔱 𝔞𝔩𝔩... “
 <p align="center"> 𝖓𝖔𝖜 𝖕𝖑𝖆𝖞𝖎𝖓𝖌
 <p align="center">
   <a
     
 [𝖞𝖔𝖚 𝖋𝖚𝖈𝖐𝖊𝖗𝖘 𝖜𝖊𝖗𝖊 𝖆𝖘𝖐𝖎𝖓𝖌 𝖋𝖔𝖗 𝖙𝖍𝖎𝖘 𝖔𝖓𝖊](https://youtu.be/4J3zvFT0CAA?si=J4KQMdF9Dlk9PTG3) 
 <p align="center"> 0:58 ─────○──────── 2:16
-<p align="center"> ⠀↺ ◁ ││ ▷ ↻ ⇆
+<p align="center"> ↺ ◁ ││ ▷ ↻ ⇆
 <p align="center">
 <p align="center">
   <a
