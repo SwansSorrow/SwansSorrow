@@ -94,7 +94,7 @@ $$\color{#5FE2FF}{\text{𝓢𝔱𝔞𝔱𝔲𝔰}}$$
 
 <p align="center">  $$\color{#4d51a1}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔}}$$
   <p align="center"> 
-<p align="center"> $$\color{#5FE2FF}{\text{𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !}}$$
+<p align="center"> $$\color{#5FE2FF}{\text{! 𝕯𝖔𝖙𝖙𝖔𝖑𝖔𝖓𝖊 𝖋𝖆𝖓𝖘 𝖎𝖓𝖙 !}}$$
   <p align="center"> 
     <p align="center"> 
      <p align="center"> 
@@ -113,7 +113,7 @@ $$\color{#b7e2ed}{\text{ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 �
 <p align="center">
   <a
   
-[@𝑅𝒶𝓏𝓉 🐀](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶 ](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒 🕊️](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇 🩸](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎 🌧️](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾 ❄️](https://github.com/Eun0i4Xd)
+[@𝑅𝒶𝓏𝓉 🐀](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶 🪽](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒 🕊️](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇 🩸](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎 🌧️](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾 ❄️](https://github.com/Eun0i4Xd)
 
 <p align="center">
 
