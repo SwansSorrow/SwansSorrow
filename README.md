@@ -40,7 +40,27 @@ $$\color{#b7e2ed}{\text{➺ ℑ 𝔞𝔪 𝟏𝟖+ 𝔞𝔫𝔡 𝔦𝔰 𝔳�
 $$\color{#b7e2ed}{\text{➺ ℑ 𝔞𝔪 𝔫𝔬𝔱 𝔢𝔵𝔞𝔠𝔱𝔩𝔶 𝔣𝔯𝔦𝔢𝔫𝔡𝔩𝔶 𝔞𝔱 𝔣𝔦𝔯𝔰𝔱 𝔰𝔦𝔤𝔥𝔱, 𝔰𝔬 𝔟𝔢𝔞𝔯 𝔴𝔦𝔱𝔥 𝔪𝔢 𝔞𝔫𝔡 𝔪𝔶 𝔥𝔬𝔰𝔱𝔦𝔩𝔦𝔱𝔶}}$$⠀⠀
 <p align="left">
    
-$$\color{#b7e2ed}{\text{➺ ℑ 𝔡𝔬𝔫𝔱 𝔣𝔯𝔦𝔢𝔫𝔡 𝔭𝔢𝔬𝔭𝔩𝔢 𝔯𝔞𝔫𝔡𝔬𝔪𝔩𝔶. 𝔴𝔢 𝔴𝔦𝔩𝔩 𝔥𝔞𝔳𝔢 𝔱𝔬 𝔦𝔫𝔱 𝔬𝔯 𝔱𝔞𝔩𝔨𝔢𝔡 𝔞 𝔟𝔦𝔱 𝔣𝔦𝔯𝔰𝔱 𝔟𝔢𝔣𝔬𝔯𝔢 𝔦 𝔴𝔬𝔲𝔩𝔡 𝔰𝔢𝔫𝔡 𝔣𝔯𝔦𝔢𝔫𝔡 𝔯𝔢𝔮.}}$$
+$$\color{#b7e2ed}{\text{➺ ℌ𝔦𝔤𝔥𝔩𝔶 𝔰𝔢𝔩𝔢𝔠𝔱𝔦𝔳𝔢 𝔴𝔦𝔱𝔥 𝔣𝔯𝔦𝔢𝔫𝔡 𝔯𝔢𝔮𝔲𝔢𝔰𝔱𝔰. 𝔗𝔞𝔩𝔨 𝔱𝔬 𝔪𝔢 𝔣𝔦𝔯𝔰𝔱.}}$$
+⠀<p align="left">
+
+<p align="left">
+   
+$$\color{#b7e2ed}{\text{➺ 𝔗𝔬𝔫𝔢 ℑ𝔫𝔡𝔦𝔠𝔞𝔱𝔬𝔯𝔰: 𝔞𝔭𝔭𝔯𝔢𝔠𝔦𝔞𝔱𝔢𝔡 𝔟𝔲𝔱 𝔫𝔬𝔱 𝔯𝔢𝔮𝔲𝔦𝔯𝔢𝔡.. 𝔲𝔰𝔢 𝔱𝔥𝔢𝔪 𝔦𝔣 𝔶𝔬𝔲 𝔰𝔱𝔯𝔲𝔤𝔤𝔩𝔢 𝔱𝔬 𝔯𝔢𝔞𝔡 𝔪𝔶 𝔱𝔬𝔫𝔢.}}$$
+⠀<p align="left">
+
+<p align="left">
+   
+$$\color{#b7e2ed}{\text{➺ 𝔦𝔣 𝔶𝔬𝔲 𝔠𝔞𝔫𝔫𝔬𝔱 𝔥𝔞𝔫𝔡𝔩𝔢 𝔟𝔩𝔲𝔫𝔱 𝔥𝔬𝔫𝔢𝔰𝔱𝔶 𝔬𝔯 𝔞 𝔫𝔞𝔱𝔲𝔯𝔞𝔩𝔩𝔶 𝔥𝔬𝔰𝔱𝔦𝔩𝔢 𝔡𝔢𝔪𝔢𝔞𝔫𝔬𝔯. 𝔟𝔢𝔰𝔱 𝔱𝔬 𝔞𝔳𝔬𝔦𝔡 𝔱𝔞𝔩𝔨𝔦𝔫𝔤 𝔱𝔬 𝔪𝔢.}}$$
+⠀<p align="left">
+
+<p align="left">
+   
+$$\color{#b7e2ed}{\text{➺ ℑ𝔣 ℑ 𝔞𝔪 𝔰𝔦𝔩𝔢𝔫𝔱, ℑ 𝔞𝔪 𝔢𝔦𝔱𝔥𝔢𝔯 𝔪𝔲𝔩𝔱𝔦-𝔱𝔞𝔰𝔨𝔦𝔫𝔤 𝔬𝔯 𝔠𝔬𝔪𝔭𝔩𝔢𝔱𝔢𝔩𝔶 𝔷𝔬𝔫𝔢𝔡 𝔬𝔲𝔱.}}$$
+⠀<p align="left">
+
+<p align="left">
+   
+$$\color{#b7e2ed}{\text{➺ 𝔖𝔨𝔦𝔭 𝔱𝔥𝔢 𝔭𝔩𝔢𝔞𝔰𝔞𝔫𝔱𝔯𝔦𝔢𝔰 𝔞𝔫𝔡 𝔱𝔥𝔢 "𝔠𝔞𝔫 ℑ 𝔞𝔰𝔨 𝔞 𝔮𝔲𝔢𝔰𝔱𝔦𝔬𝔫?" 𝔱𝔞𝔩𝔨. 𝔍𝔲𝔰𝔱 𝔞𝔰𝔨.}}$$
 ⠀<p align="left">
 
 $$\color{#b7e2ed}{\text{➺ 𝓒 + 𝓗  𝒇𝒓𝒆𝒆𝒍𝒚 𝒂𝒏𝒚𝒕𝒊𝒎𝒆 𝒆𝒗𝒆𝒏 𝒊𝒇 𝒏𝒐𝒕 𝒔𝒕𝒂𝒕𝒆𝒅 𝒊𝒏 𝒏𝒂𝒎𝒆⠀➺ 𝒖𝒏𝒍𝒆𝒔𝒔 𝑰'𝒎 𝒘𝒊𝒕𝒉 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒐𝒓 𝒑𝒂𝒓𝒕𝒚}}$$
@@ -49,7 +69,6 @@ $$\color{#b7e2ed}{\text{➺ 𝓒 + 𝓗  𝒇𝒓𝒆𝒆𝒍𝒚 𝒂𝒏𝒚�
 <p align="center"> 
 
 
-![](https://files.catbox.moe/os7en4.png)
 
 ⠀<p align="left">
 $$\color{#5FE2FF}{\text{𝓢𝔱𝔞𝔱𝔲𝔰}}$$ 
@@ -62,8 +81,14 @@ $$\color{#5FE2FF}{\text{𝓢𝔱𝔞𝔱𝔲𝔰}}$$
 
 ⛔️ - 𝔐𝔬𝔰𝔱𝔩𝔶 𝔇𝔫𝔦/𝔰 𝔦𝔫 𝔫𝔞𝔪𝔢 (𝔬𝔯 𝔫𝔬𝔱) ༚ 𝔴𝔯𝔦𝔱𝔦𝔫𝔤 𝔬𝔯 𝔟𝔲𝔰𝔶 ༚ 𝔇𝔫𝔦𝔲𝔭𝔞𝔯𝔱𝔶 𝔬𝔯 𝔇𝔫𝔦𝔲𝔇𝔢𝔞𝔯𝔢𝔰𝔱 , 𝔦𝔴𝔠𝔞𝔲𝔱𝔦𝔬𝔫 𝔞𝔩𝔴𝔞𝔶𝔰 .
 
-⠀<p align="center">⠀⠀⠀⠀𒀹⠀⠀⠀ $$\color{#5FE2FF}{\text{𝔐𝔬𝔰𝔱𝔩𝔶 𝔰𝔞𝔣𝔨 𝔰𝔬 𝔩𝔞𝔱𝔢 𝔯𝔢𝔰𝔭 𝔦𝔰 𝔢𝔵𝔭𝔢𝔠𝔱𝔢𝔡.}}$$⠀⠀⠀ 𒑠
-⠀⠀⠀⠀⠀⠀⠀⠀ <p align="center"> $$\color{#5FE2FF}{\text{ᔓ⠀⠀⠀ℑ 𝔟𝔩𝔬𝔠𝔨／𝔥𝔦𝔡𝔢 𝔣𝔯𝔢𝔢𝔩𝔶⠀⠀⠀ᔕ}}$$
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀  <p align="center"> $$\color{#5FE2FF}{\text⠀⠀⠀⠀⠀⠀⠀⠀ {𒀹⠀⠀⠀ 𝔐𝔬𝔰𝔱𝔩𝔶  𝔰𝔞𝔣𝔨  𝔰𝔬  𝔩𝔞𝔱𝔢  𝔯𝔢𝔰𝔭  𝔦𝔰  𝔢𝔵𝔭𝔢𝔠𝔱𝔢𝔡.⠀⠀⠀ 𒑠}}$$
+⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"> $$\color{#5FE2FF}{\text{ᔓ⠀⠀⠀ℑ 𝔟𝔩𝔬𝔠𝔨／𝔥𝔦𝔡𝔢 𝔣𝔯𝔢𝔢𝔩𝔶⠀⠀⠀ᔕ}}$$
+
+
+![](https://files.catbox.moe/os7en4.png)
+
+
 ⠀⠀⠀⠀⠀<p align="center"> ⠀
 ⠀<p align="center"> ⠀
 
@@ -88,7 +113,7 @@ $$\color{#b7e2ed}{\text{ℑ𝔣 𝔶𝔬𝔲 𝔞𝔠𝔱𝔦𝔳𝔢𝔩𝔶 �
 <p align="center">
   <a
   
-[@𝑅𝒶𝓏𝓉](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾](https://github.com/Eun0i4Xd)
+[@𝑅𝒶𝓏𝓉 🐀](https://github.com/T0R4X) ◝ 𓍲 ◜ [@𝒩𝒶𝒾𝒶 ](https://github.com/AngelicDeceit) ◝ 𓍲 ◜ [@𝒟𝑜𝓋𝑒 🕊️](https://github.com/Noctiluvancy) ◝ 𓍲 ◜ [@𝐼𝓂𝑜𝓇 🩸](https://github.com/ChimoryX) ◝ 𓍲 ◜ [@𝑅𝒶𝒾𝓃𝓎 🌧️](https://github.com/rainyourday) ◝ 𓍲 ◜ [@𝑀𝑒𝒾 ❄️](https://github.com/Eun0i4Xd)
 
 <p align="center">
 
