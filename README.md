@@ -26,7 +26,7 @@
  <p align="center">
   <a
 
-ᔓ⠀⠀ [𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰.𝔠𝔠](https://pronouns.cc/@aviledoktxr) ⠀⠀ ⠀ ⠀⠀[𝔢𝔫.𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰](https://en.pronouns.page/@aviledoktxr)⠀⠀ ᔕ⠀
+ᔓ⠀⠀ [𝔭𝔯𝔬𝔫𝔬𝔲𝔫𝔰.𝔠𝔠](https://pronouns.cc/@aviledoktxr)⠀⠀ ᔕ⠀
 
 
 ![](https://files.catbox.moe/os7en4.png)
